@@ -9,6 +9,7 @@ Links to onion news network YT as a row of artticles
 
 
 Ads*
+fake anti add block
 Coockie pop up
 Reference na word press
 Link to download the news app on mobile (peeshooter)
